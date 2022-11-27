@@ -1,2 +1,2 @@
-Just a clownery for Rono and others.
-Also for cracking stuff they make.
+leaving team takashi because rono joined
+stuff i worked on
